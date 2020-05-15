@@ -1,1 +1,4 @@
 # BendrasProjektas
+wa
+e
+awewa
